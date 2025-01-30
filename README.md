@@ -1,2 +1,2 @@
 # curly-sniffle
-proyecto de equipo
+me aburri
